@@ -1,3 +1,5 @@
 # git-101
-muhamed nako
+benim adım muhammed al nako
 30 yaşındayım
+Bilişim okudum ve mezun oldum
+şimdi gaziantep'te çalışıyorum
