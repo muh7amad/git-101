@@ -4,4 +4,4 @@ benim adım muhammed al nako
 Ben suriyeliyim
 Bilişim okudum ve mezun oldum
 Programlamayı seviyorum ve android ve c # öğrendim
-DDD
+Email : en.muhamad.naqo@gmail.com
