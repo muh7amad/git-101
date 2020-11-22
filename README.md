@@ -5,4 +5,4 @@ Ben suriyeliyim
 Gaziantepte oturyorum
 Bilişim okudum ve mezun oldum
 Email : en.muhamad.naqo@gmail.com
-hippilerim: yüzmek ve belgesel izlemek
+Hobiler: yüzmek ve belgesel izlemek
